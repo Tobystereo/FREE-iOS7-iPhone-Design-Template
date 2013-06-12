@@ -8,4 +8,6 @@ I've been working on an iOS7 iPhone template for Illustrator.
 
 Hope you enjoy it!
 
+Follow me: [@tobystereo](http://twitter.com/tobystereo)
+
 
